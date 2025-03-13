@@ -9,7 +9,7 @@
 
 Сразу после регистрации в Daddy casino бездепозитный бонус появился в личном кабинете, а я начал его отыгрывать.
 Daddy Casino: Новое Казино с Обширной Бонусной. Бездепозитный бонус Daddy Casino. ... В мире азартных игр Daddy Casino (Дэдди Казино) является сравнительно новым игроком, заявившим о себе в 2024 году.
-Daddy бездепозитный бонус! Daddy Casino. ... www.daddy.casino owned and operated by Fun Fusion N.V. (reg. number 156583), with its address at Abraham de Veerstraat 1, Curaçao.
+Daddy бездепозитный бонус! Daddy Casino. daddy.casino owned and operated by Fun Fusion N.V. (reg. number 156583), with its address at Abraham de Veerstraat 1, Curaçao.
 Daddy Casino: Бездеп 100 FS по бонусному промокоду за.
 Приветственный бонус от казино Daddy для новых клиентов за регистрацию и пополнение баланса. ... Дэдди казино предлагает каждому новому клиенту бездепозитный бонус по выгодному промокоду.
 Daddy casino бездепозитный бонус: 100 фриспинов
